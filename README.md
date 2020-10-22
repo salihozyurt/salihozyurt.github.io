@@ -1,1 +1,0 @@
-# salihozyurt.github.io
